@@ -9,7 +9,7 @@
 <td width="70%" valign="top">
 
 ## searching for an intro that doesn 't exist 
-myles or mylo⠀⠀✿𝆬⠀⠀15 yrs old
+myles or ave⠀⠀✿𝆬⠀⠀15 yrs old
 
 10.08.25⠀⠀♡⠀⠀ilmbf⠀⠀♡⠀⠀ilmfs
 
@@ -38,6 +38,8 @@ better viewed on **pc** .
 > i have no dni other than derek & avery doubles⠀;⠀i will not hesitate to block if im uncomfortable
 
 > c+h is always encouraged unless my name states otherwise⠀;⠀do not cover or copy me
+
+> asking to be moots is ok
 
 ---
 
