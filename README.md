@@ -22,10 +22,13 @@
 <p align="left">taken by my lovely boyfriend . i love my friends to death</p>
 <p align="left">i kin avery heavily , doubles pls block me .</p>
 
-<img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/3c559f98-4d81-4a4c-a20b-fa074aba579c" />
+<img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
+
+join my [discord](https://discord.gg/makijun) ♡︎
+
+strawpage is a wip ok . idk what else to add moot me on discord
+
+<img width="250" height="30" img align="left" alt="Untitled289_0000-12-06_20260922232349" src="https://github.com/user-attachments/assets/9fd2ea60-0b44-4240-82a0-32c3acb9e0d4" />
 
 
-
-moot me ;-;;
-
-
+<img width="250" height="200" img align="left" alt="Untitled289_0000-12-06_20260922234100" src="https://github.com/user-attachments/assets/d1d1b13d-72ba-4b5b-acfc-72a22bf1e8c8" />
