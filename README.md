@@ -2,7 +2,8 @@
 
 
 
-<img width="600" height="900" img align="right" alt="Untitled289_0000-12-06_20260922192717" src="https://github.com/user-attachments/assets/28c03241-f79c-4060-a08f-ac61340f8e60" />
+<img width="500" height="770" img align="right" alt="Untitled289_0000-12-06_20260922220333" src="https://github.com/user-attachments/assets/9e1ae69e-30d6-4ace-8b04-d03f90d2ecef" />
+
 
 
 <p align="left">frankie ou avery . 15 yrs old</p>
@@ -15,14 +16,15 @@
 <img width="50" height="50" img align="left" alt="Untitled290_20260922194312" src="https://github.com/user-attachments/assets/3f551857-d41f-4339-8a5f-008507a89d3b" />
 
 
-<p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
+<p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
+<p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
 <p align="left">all prns except for she / they . i have no dni & i block extremely freely .</p>
 <p align="left">taken by my lovely boyfriend . i love my friends to death</p>
 <p align="left">i kin avery heavily , doubles pls block me .</p>
 
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/3c559f98-4d81-4a4c-a20b-fa074aba579c" />
 
-join my [discord](https://discord.gg/makijun) ♡︎
+
 
 moot me ;-;;
 
