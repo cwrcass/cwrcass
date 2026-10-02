@@ -26,7 +26,7 @@
 
 join my [discord](https://discord.gg/makijun) ♡︎
 
-strawpage is a wip ok . idk what else to add moot me on discord
+currently on hiatus. 
 
 <img width="250" height="30" img align="left" alt="Untitled289_0000-12-06_20260922232349" src="https://github.com/user-attachments/assets/9fd2ea60-0b44-4240-82a0-32c3acb9e0d4" />
 
