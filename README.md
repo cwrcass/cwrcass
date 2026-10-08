@@ -24,7 +24,7 @@
 
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
 
-join my [discord](https://discord.gg/makijun) ♡︎
+i do comms sometimes 😳😳 dm me on dc omg wow !!
 
 currently on hiatus. 
 
