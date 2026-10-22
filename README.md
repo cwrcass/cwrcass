@@ -10,23 +10,15 @@
 <p align="left">c+h freely unl. name states otherwise , dncover/copy unl. friended .</p>
 <p align="left">easily irritated & avoidant aiwec unl. friended</p>
 
-<img width="50" height="50" img align="left" alt="Untitled290_20260922194255" src="https://github.com/user-attachments/assets/2a6b46df-09af-4027-b59c-a096054ed547" />
-
-
-<img width="50" height="50" img align="left" alt="Untitled290_20260922194312" src="https://github.com/user-attachments/assets/3f551857-d41f-4339-8a5f-008507a89d3b" />
-
-
-<p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
-<p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
 <p align="left">all prns except for she / they . i have no dni & i block extremely freely .</p>
 <p align="left">taken by my lovely boyfriend . i love my friends to death</p>
 <p align="left">i kin avery (sfawtde) heavily , doubles pls block me .</p>
 
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
 
-i do comms sometimes 😳😳 dm me on dc omg wow !!
+check ⠀⠀[this](https://pronouns.cc/@cwrcass)⠀⠀out⠀⠀(；′⠀⌒⠀`)
 
-currently on hiatus. 
+currently on break, school and stuff.
 
 <img width="250" height="30" img align="left" alt="Untitled289_0000-12-06_20260922232349" src="https://github.com/user-attachments/assets/9fd2ea60-0b44-4240-82a0-32c3acb9e0d4" />
 
