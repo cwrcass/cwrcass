@@ -17,7 +17,10 @@
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
 
 check ⠀⠀[this](https://pronouns.cc/@cwrcass)⠀⠀out⠀⠀(；′⠀⌒⠀`)
-and  ⠀⠀[this](https://discord.gg/uFFpj2Dv4)  ⠀⠀!
+
+and  ⠀⠀[this](https://discord.gg/uFFpj2Dv4)  
+
+<img width="150" height="20" img align="left" alt="tumblr_3e3dfa9b95782ea39fc408daababc6fc_8f1e98df_250" src="https://github.com/user-attachments/assets/3fddeeee-8172-42c6-ba6b-7ed0098a5a07"/>
 
 currently on break, school and stuff.
 
