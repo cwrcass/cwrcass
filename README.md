@@ -6,7 +6,7 @@
 
 
 
-<p align="left">frankie ou avery . 15 yrs old</p>
+<p align="left">frankie ou avery  18 . 05 . 2011 ;; 15 yrs old</p>
 <p align="left">c+h freely unl. name states otherwise , dncover/copy unl. friended .</p>
 <p align="left">easily irritated & avoidant aiwec unl. friended</p>
 
@@ -20,7 +20,7 @@
 <p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
 <p align="left">all prns except for she / they . i have no dni & i block extremely freely .</p>
 <p align="left">taken by my lovely boyfriend . i love my friends to death</p>
-<p align="left">i kin avery heavily , doubles pls block me .</p>
+<p align="left">i kin avery (sfawtde) heavily , doubles pls block me .</p>
 
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
 
