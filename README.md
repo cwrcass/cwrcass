@@ -18,9 +18,10 @@
 
 check ⠀⠀[this](https://pronouns.cc/@cwrcass)⠀⠀out⠀⠀(；′⠀⌒⠀`)
 
-and  ⠀⠀[this](https://discord.gg/uFFpj2Dv4)  
-
 <img width="150" height="20" img align="left" alt="tumblr_3e3dfa9b95782ea39fc408daababc6fc_8f1e98df_250" src="https://github.com/user-attachments/assets/3fddeeee-8172-42c6-ba6b-7ed0098a5a07"/>
+<p align="left"> ⠀  ⠀⠀  ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀</p>
+
+and⠀this⠀[discord](https://discord.gg/uFFpj2Dv4)⠀server
 
 currently on break, school and stuff.
 
