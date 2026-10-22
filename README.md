@@ -7,7 +7,7 @@
 
 
 <p align="left">frankie ou avery . 15 yrs old</p>
-<p align="left">c+h freely unl. name states otherwise , dncover/copy .</p>
+<p align="left">c+h freely unl. name states otherwise , dncover/copy unl. friended .</p>
 <p align="left">easily irritated & avoidant aiwec unl. friended</p>
 
 <img width="50" height="50" img align="left" alt="Untitled290_20260922194255" src="https://github.com/user-attachments/assets/2a6b46df-09af-4027-b59c-a096054ed547" />
