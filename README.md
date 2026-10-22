@@ -17,6 +17,7 @@
 <img width="106" height="63" alt="Untitled289_0000-12-06_20260922212750" src="https://github.com/user-attachments/assets/461a593b-1520-4b18-919a-294a670ca6c3" />
 
 check ⠀⠀[this](https://pronouns.cc/@cwrcass)⠀⠀out⠀⠀(；′⠀⌒⠀`)
+and  ⠀⠀[this](https://discord.gg/uFFpj2Dv4)  ⠀⠀!
 
 currently on break, school and stuff.
 
